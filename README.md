@@ -2,7 +2,7 @@
 
 ## About Me
 
-Born and raised in Madeira, 30 Years old, degree in Electronics and Telecomunications Engineering.
+Born and raised in Madeira, 31 Years old, degree in Electronics and Telecomunications Engineering.
 
 ## Hobbies
 
